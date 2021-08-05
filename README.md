@@ -1,0 +1,2 @@
+# voc
+ chat opiniões póliticas
